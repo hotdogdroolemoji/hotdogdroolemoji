@@ -9,7 +9,7 @@
 ##### ${\color{#fee7bf}"Anchor}$ ${\color{#fee7bf}me}$ ${\color{#fee7bf}down}$ ${\color{#fee7bf}to}$ ${\color{#fee7bf}the}$ ${\color{#fee7bf}waves}$ ${\color{#fee7bf}of}$ ${\color{#fee7bf}life"ㅤ}$ ${\color{#fee7bf}ㅤꨄ︎}$ 　 
 
 ##### ${\color{#fee7bf}⇊}$ ${\color{#fee7bf}check}$ ${\color{#fee7bf}out}$ ${\color{#fee7bf}links}$ ${\color{#fee7bf}4}$ ${\color{#fee7bf}more}$  　　　　　　　 
-##### [ata](https://jun6.atabook.org/) ‎‎             ‎[fluffle](https://fluffle.cc/siriussymbolis)‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@2MOE4LIFE)  
+##### [ata](https://jun6.atabook.org/) ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [fluffle](https://fluffle.cc/siriussymbolis)‎‎‎ ‎ ‎[prns.cc](https://pronouns.cc/@2MOE4LIFE)  
 
 
 
