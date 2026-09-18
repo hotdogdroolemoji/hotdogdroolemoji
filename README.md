@@ -1,16 +1,20 @@
-## Hi there 👋
+<img src="https://files.catbox.moe/11301r.png" align="left" width="390">
 
-<!--
-**hotdogdroolemoji/hotdogdroolemoji** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+##### ${\color{#fee7bf}‎ }$ 
+##### ${\color{#fee7bf}‎ }$ 
+ ![](https://komarev.com/ghpvc/?username=hotdogdroolemoji&color=9e4a8b)
+‎ ‎ ‎
+‎ ‎ ‎
+##### ${\color{#fee7bf}"Anchor}$ ${\color{#fee7bf}me}$ ${\color{#fee7bf}down}$ ${\color{#fee7bf}to}$ ${\color{#fee7bf}the}$ ${\color{#fee7bf}waves}$ ${\color{#fee7bf}of}$ ${\color{#fee7bf}life"ㅤ}$ ${\color{#fee7bf}ㅤꨄ︎}$ 　 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+##### ${\color{#fee7bf}⇊}$ ${\color{#fee7bf}check}$ ${\color{#fee7bf}out}$ ${\color{#fee7bf}links}$ ${\color{#fee7bf}4}$ ${\color{#fee7bf}more}$  　　　　　　　 
+##### [ata](https://loomingshadow.atabook.org/) ‎‎             ‎[fluffle](https://fluffle.cc/siriussymbolis)‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@2MOE4LIFE)  
+
+
+
+
+‎‎ 
+
+
+ 
