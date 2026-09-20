@@ -1,7 +1,7 @@
 <img src="https://files.catbox.moe/11301r.png" align="left" width="390">
 
 
-##### ${\color{#fee7bf}‎ }$ 
+
 ##### ${\color{#fee7bf}‎ }$ 
  ![](https://komarev.com/ghpvc/?username=hotdogdroolemoji&color=9e4a8b&label=hi!!!1!omg&&style=plastic)
 ‎ ‎ ‎
@@ -12,7 +12,7 @@
 ##### [ata](https://jun6.atabook.org/) ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [fluffle](https://fluffle.cc/siriussymbolis)‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@2MOE4LIFE)  
 
 
-
+##### ![](https://files.catbox.moe/42oxif.png)
 
 ‎‎ 
 
