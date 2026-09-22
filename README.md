@@ -6,9 +6,9 @@
  ![](https://komarev.com/ghpvc/?username=hotdogdroolemoji&color=9e4a8b&label=hi!!!1!omg&&style=plastic)
 ‎ ‎ ‎
 ‎ ‎ ‎
-##### ${\color{#fee7bf}"Anchor}$ ${\color{#fee7bf}me}$ ${\color{#fee7bf}down}$ ${\color{#fee7bf}to}$ ${\color{#fee7bf}the}$ ${\color{#fee7bf}waves}$ ${\color{#fee7bf}of}$ ${\color{#fee7bf}life"ㅤ}$ ${\color{#fee7bf}ㅤꨄ︎}$ 　 
+##### ${\color{#EECACD}"Anchor}$ ${\color{#EECACD}me}$ ${\color{#EECACD}down}$ ${\color{#EECACD}to}$ ${\color{#EECACD}the}$ ${\color{#EECACD}waves}$ ${\color{#EECACD}of}$ ${\color{#EECACD}life"ㅤ}$ ${\color{#EECACD}ㅤꨄ︎}$ 　 
 
-##### ${\color{#fee7bf}⇊}$ ${\color{#fee7bf}check}$ ${\color{#fee7bf}out}$ ${\color{#fee7bf}links}$ ${\color{#fee7bf}4}$ ${\color{#fee7bf}more}$  　　　　　　　 
+##### ${\color{#EECACD}⇊}$ ${\color{#EECACD}check}$ ${\color{#EECACD}out}$ ${\color{#EECACD}links}$ ${\color{#EECACD}4}$ ${\color{#EECACD}more}$  　　　　　　　 
 ##### [ata](https://jun6.atabook.org/) ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [fluffle](https://fluffle.cc/siriussymbolis)‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@2MOE4LIFE)  
 
 
